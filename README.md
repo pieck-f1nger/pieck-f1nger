@@ -2,7 +2,7 @@ c-h is really approved! .
 
 copiers/idea stealer dni !
 
-i dont allow inspirations at all thankyou
+i dont allow inspirations at all thankyou . no skin inspo you dipshit blind
 
 в основном все время молчать так [w2i]
 
