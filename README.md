@@ -1,1 +1,2 @@
-![3ffadc9c-0e24-4233-8f7c-a5a97ad9da89](https://github.com/user-attachments/assets/4c19cebe-9958-4c27-a79b-6a41e3fc4be3)
+
+![Инумаки](https://github.com/user-attachments/assets/c731629a-a3cd-456e-9d7f-315c0a49872f)
